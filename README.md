@@ -1,1 +1,1 @@
-# Miranda-LAnding Page
+# Miranda-Landing Page
